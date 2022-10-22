@@ -1,0 +1,1 @@
+# Upon reading this, I'm at 30:52 on Joining a Home Lab (JH)
